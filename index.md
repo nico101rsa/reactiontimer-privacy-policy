@@ -53,7 +53,7 @@
 ## 6. Contact Information
 
 If you have any questions about this privacy policy, please contact:
-- Email: nico.mcdonald@outlook.com
+- Email: reactiontimer@icloud.com
 - Last Updated: February 2024
 
 ## 7. Consent
